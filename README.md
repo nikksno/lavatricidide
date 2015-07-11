@@ -7,7 +7,7 @@ Ciao! Benvenuto nel gruppo lavatrici. Innanzitutto se sei appena arrivato fai su
 
 1] Segna il tuo nome e numero di telefono sulla lista. Se vuoi puoi segnare la checkbox per essere iscritto al gruppo whatsapp [consigliato per organizzarci ancora meglio tutti insieme].
 
-2] Scegli fino ad un massimo di quattro turni liberi dal nostro calendario settimanale e scrivi su ognuno il tuo nome. Ogni lavatrice ha un calendario separato e i turni durano 3H ciascuno: puoi sceglierli come vuoi tu: tutti di fila lo stesso giorno, tutti separati, alcuni su una lavatrice e gli altri sull'altra, etc...
+2] Scegli fino ad un massimo di quattro turni liberi dal nostro calendario settimanale e scrivi su ognuno il tuo nome. Ogni lavatrice ha un calendario separato e i turni durano 3H ciascuno: puoi sceglierli come vuoi tu: tutti di fila lo stesso giorno, tutti separati, alcuni su una lavatrice e gli altri sull'altra [sempre per un massimo di quattro turni in totale a settimana], etc...
 
 3] Leggi bene le indicazioni d'uso qui sotto e rispetta gli orari degli altri. È responsabilità tua come di tutti gli altri rendere la nostra vita semplice e tranquilla anche nell'uso delle lavatrici ;)
 
