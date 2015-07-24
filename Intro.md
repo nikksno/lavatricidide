@@ -2,7 +2,7 @@ Ragazzi
 
 Innanzitutto ciao a tutti.
 
-Non vi conosco personalmente e non ho idea di chi gestisca il nostro gruppo lavatrici e vi dico subito che sono l'ultimo arrivato rispetto a tanti di voi essento qui soltanto da gennaio.
+Non vi conosco personalmente e non ho idea di chi gestisca il nostro gruppo lavatrici e vi dico subito che sono l'ultimo arrivato rispetto a tanti di voi essendo qui soltanto da gennaio.
 
 Tuttavia dal primo giorno troppe volte mi è capitato [non immagino quante a voi] di non riuscire ad usare le lavatrici serenamente: turni invasi, carichi svuotati durante il proprio turno, carichi multipli di 6H ciascuno uno dopo l'altro in orari vuoti o peggio durante il proprio turno, fogli lasciati sulla lavatrice con scritto gentilmente di non invadere i turni strappati senza risposta, etc...
 
